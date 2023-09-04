@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @jvanabra
-- 👀 I’m interested in extending the values of GitHub to express lifeware via thr language Althean.
+- 👀 I’m interested in extending the values of GitHub to express lifeware via thr language Rupert.
 - 🌱 I’m currently learning all the ways GitHub enhances programming and processes.
 - 💞️ I’m looking to collaborate on extending the lifetime of the third density of contrast and embodiment.
 - 📫 You may reach me at vanabrahams@gmail.com or snail mail at Dimensional Integral attn: Joshua Van Abrahams, 584 Castro Street #781, San Francisco, CA 94114
