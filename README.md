@@ -8,8 +8,11 @@ The preamble to the Constitution of the United States of America begins with the
 We are born of contrast and connection.
 
 Visit Complex Information of Causal Origins
+
 Visit us at Why Emerges In The Worlds weitw.io
+
 Visit us on X at @vangithub
+
 Visit Law of One Ra Material lawofone.info
 
 The Intersection of Spirit Technology and Embodiment
